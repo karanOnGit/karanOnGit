@@ -1,4 +1,4 @@
-![image](https://github.com/karanOnGit/karanOnGit/assets/147686366/3b15ec3a-128d-4cd0-a866-7e8105e2e3d5)
+![header](https://github.com/karanOnGit/karanOnGit/assets/147686366/b6467bcf-f634-4137-9a24-0f8fe3948029)
 
 # Hi 👋, I'm Karan Bhardwaj
 
